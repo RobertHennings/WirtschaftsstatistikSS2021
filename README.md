@@ -7,4 +7,4 @@ are able to represent the structure and interdependence of the production of goo
 characterise the production process in Germany on the basis of the input-output calculation of the Federal Statistical Office
 represent the economic cycle interrelationships with the help of the results of the national accounts
 
-Translated with www.DeepL.com/Translator (free version)
+
